@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jamax10
+- 👀 I’m interested in good music
+- 🌱 I’m currently learning graphics designing
+- 💞️ I’m looking to collaborate on this platform
+- 📫 How to reach me: +2348149416523
